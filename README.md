@@ -1,1 +1,2 @@
-最近有兩則消息不僅爆屏，還引發民間、各路專家學者的激烈研討。
+<div align="center"><h1>韩星5号的播出参数</h1></div><p></p>
+<img src="https://github.com/dfchunsring/arar/blob/master/Read.img/star5.jpg?raw=true" style="max-width:100%;" width="880"><p>
