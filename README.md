@@ -1,3 +1,16 @@
+
+<div align="center">
+<IMG SRC="https://github.com/dfchunsring/drdr/blob/master/imgang/1-25.png?raw=true" width=880></a><br>
+
+<h3> 大陆</h3>
+12/24/2018	Monday	首播	20:00<br>
+12/25/2018	Tuesday	重播	10:00<br>
+12/25/2018	Tuesday	重播	17:00<br>
+12/31/2018	Monday	首播	13:00<br>
+12/31/2018	Monday	重播	20:30
+<h3>【预告】新唐人将独家播出2017神韵交响乐 https://git.io/dici</h3></div>
+
+
 <div align="center"><h1>韩星5号的播出参数</h1></div><p></p>
 <img src="https://github.com/dfchunsring/arar/blob/master/Read.img/star5.jpg?raw=true" style="max-width:100%;" width="880"><p>
 
